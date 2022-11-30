@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @David
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning dropshipping
+- 💞️ I’m looking to collaborate on coding/web menagment
+- 📫 instagram @tomicdavidd
